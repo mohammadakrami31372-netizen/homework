@@ -1,4 +1,4 @@
-Sure! Here's concise and clear information about *Interpreter* and *Open Source License*, explained separately:
+
 
 ---
 
